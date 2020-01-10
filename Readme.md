@@ -1,1 +1,1 @@
-Coporate with Jingci Wang
+Cooperate with Jingci Wang
